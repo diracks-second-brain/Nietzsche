@@ -7,3 +7,6 @@ valores representam uma perspectiva e não verdades eternas e imutáveis, ou sej
 
 A compaixão leva ao niilismo, pois nos torna iguais na nossa miséria. Por isso, a saída é a transvaloração dos valores, já que
 na desigualdade nós somos únicos e singulares (o nosso valor se encontra na nossa idiosincrasia).
+
+O que constitui uma pessoa é a ordem política dos seus impulsos. E se os impulsos subversivos puderem ser controlados pela permissão de
+comandarem de vez em quando? Como quando saímos para beber, quando nos expressamos artisticamente...
