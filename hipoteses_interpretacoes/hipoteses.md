@@ -29,3 +29,9 @@ como "círculo (substantivo) quadrado (adjetivo)"
 Acreditar que existe uma força que tudo guia, e que sabe oque é melhor para você nos tira da posição de autores de nossa própria existência.
 Da posição de criadores de valores para a nossa vida. Em resumo, a crença em Deus pode ser utilizada para justificar uma forma de existência
 covarde
+
+> Não há tempo que volte, amor
+> Vamos viver tudo que há pra viver
+> Vamos nos permitir…
+>
+> Lulu Santos - Tempos modernos
