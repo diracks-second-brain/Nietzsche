@@ -10,3 +10,16 @@ na desigualdade nós somos únicos e singulares (o nosso valor se encontra na no
 
 O que constitui uma pessoa é a ordem política dos seus impulsos. E se os impulsos subversivos puderem ser controlados pela permissão de
 comandarem de vez em quando? Como quando saímos para beber, quando nos expressamos artisticamente...
+
+## A morte de Deus
+
+A frase _Deus está morto_ não é uma apologia do ateísmo, pois algo que está morto antes precisa ter existido. É um __contradictio in adjecto__.
+Pois, Deus é um ser imortal, ou seja, o predicado "está morto" contradiz a definição das propriedades do sujeito "Deus". A frase completa é melhor:
+"Deus está morto e NÓS o matamos". Ou seja, não foi Nietzsche quem matou Deus, mas a HUMANIDADE. Esta frase é dita por um personagem do aforismo 125 -
+O Louco, que anuncia a morte de Deus como um acontecimento terrível a princípio
+
+__Contradictio in adiecto__ é, em latim, "uma contradição entre partes de um argumento"
+(adiectum significa "trazido, trazido adiante"). Difere de uma "contradição em termos",
+que se refere a duas palavras opostas que normalmente aparecem juntas, por exemplo, "calor frio".
+Contradictio in adjecto ocorre quando "a característica denotada pelo adjetivo está em contraste com o substantivo",
+como "círculo (substantivo) quadrado (adjetivo)"
