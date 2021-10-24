@@ -23,3 +23,9 @@ __Contradictio in adiecto__ é, em latim, "uma contradição entre partes de um 
 que se refere a duas palavras opostas que normalmente aparecem juntas, por exemplo, "calor frio".
 Contradictio in adjecto ocorre quando "a característica denotada pelo adjetivo está em contraste com o substantivo",
 como "círculo (substantivo) quadrado (adjetivo)"
+
+### Covardia e religião
+
+Acreditar que existe uma força que tudo guia, e que sabe oque é melhor para você nos tira da posição de autores de nossa própria existência.
+Da posição de criadores de valores para a nossa vida. Em resumo, a crença em Deus pode ser utilizada para justificar uma forma de existência
+covarde
