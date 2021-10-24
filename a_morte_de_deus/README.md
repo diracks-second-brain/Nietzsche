@@ -110,3 +110,32 @@ Eu não preciso que alguém me diga qual o valor da minha ação, pois eu valoro
 sou Senhor de mim mesmo. Ou seja, não preciso de um céu e um inferno para dizer como agir, menos ainda agir de acordo com o
 imperativo categórico de Kant (agir como se a minha máxima pudesse se tornar uma máxima Universal),
 eu só preciso me tornar responsável pela valoração das minhas ações.
+
+[Oliver Cabral](https://www.youtube.com/watch?v=e6CfhmGG6Uw&lc=UgxLL2badj4GqlbKIAt4AaABAg.9Tm2szReX3n9TtvAXhdatq)
+
+ @Rodolfo Dirack   Pra esclarecer eu não estou dizendo que existe uma "recompensa supraterrena"
+Digo em relação ao inferno e Paraíso senão acredito neles porque vou me preocupar em fazer o bem? Andar certinho nesse mundo?
+Segundo os ateus os cristãos obedece a palavra faz o bem pra não ir para o inferno   
+Se vc diz que é senhor de ti mesmo então, eu não preciso me preocupar fazer justo o bem? 
+Isso não faz sentido nenhum é isso que não entendo os ateus eles vive dizendo que Deus não existe,
+mas estão praticando mandamentos bíblicos ? Viva a vida sem limites 
+Mas pra ser honesto e terminar esse assunto. Eu acredito que no fundo os ateus acredita na existência de Deus. 
+Não é atoa que eles sempre quer vir com argumentos pra contrapor a bíblia.
+Porque não crer na existência de um Deus me da "liberdade" de viver sem medo, sem  culpa
+
+[Rodolfo Dirack](https://www.youtube.com/watch?v=e6CfhmGG6Uw&lc=UgxLL2badj4GqlbKIAt4AaABAg.9Tm2szReX3n9Tu0V7zeX4z)
+
+@Oliver Cabral  Vc não entendeu oque eu quis dizer. O cristão possui um critério de valoração externo:
+o bem, o agir certo que é dado pela palavra de Deus, pelo pastor, pela moral cristã. A partir do momento que
+o fundamento desta moral, a crença em Deus, deixa de existir, deixa de existir também este parâmetro moral
+externo de "certo" e "errado". Este é uma das consequências da morte de Deus. Oque Nietzsche está propondo
+é que nós tenhamos a coragem de criar novos valores e critérios para o "certo" e o "errado", não mais a partir
+de critérios externos, como o medo do inferno e a esperança de um Paraíso, a luta pela sociedade sem classes,
+o dever, etc, mas a partir de nossos próprios juízos sobre o "certo" e o "errado". Em resumo, não é que o Ateu
+seja incoerente ao praticar um mandamento bíblico, é que ele não precisa crer no fundamento desta prática para
+agir de acordo com ela se esta prática lhe convém. Exemplo, não é porque Deus não existe que vc irá sair por aí
+matando quem vc quiser, pois existem consequências práticas desta atitude que independem da crença em Deus.
+Uma sociedade em que o assasinato indiscriminado fosse permitido seria extremamente disfuncional.
+Por isso a maioria das sociedades "segue" o "não matarás" mesmo que não acredite no Deus cristão...
+Daí segue que se estamos deixando de acreditar no Deus cristão, precisaremos de outros critérios para
+fundamentar a moral, logo isto implica sermos capazes de criar novos valores.
