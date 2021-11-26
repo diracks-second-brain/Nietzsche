@@ -2,6 +2,8 @@
 
 [Link da postagem](https://www.facebook.com/groups/364044698192168/permalink/590631618866807/)
 
+![Imagem](https://github.com/diracks-second-brain/Nietzsche/blob/main/a_morte_de_deus/images/universo_frequencia.jpg)
+
 ### Comentei o seguinte na postagem
 
 Como o Universo "fala" uma "frequência"?
