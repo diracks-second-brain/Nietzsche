@@ -18,3 +18,9 @@ O cristianismo inverte os valores. Transforma a vida boa na vida servil, a vida 
 logo há um lugar para mim no reino dos céus...
 
 ## O cristianismo como moral do ressentimento
+
+Como o cristão não pode reagir pela força contra os seus senhores, senão será açoitado, crucificado, morto, ele reage criando uma
+vingança imaginária em um mundo fictício, _o juízo final_. Neste dia, será separado o joio do trigo, o cristão terá a sua recompensa e a
+sua vingança, os justos, os humilhados serão exaltados. E os maus serão eliminados no fogo do inferno. Eles, os senhores, são maus. Por conseguinte
+eu, cristão, sou bom e justo. O sofrimento que eu passo é sinal de que eu sou um escolhido de Deus, um deus dos fracos, dos incapazes, dos
+que sofrem, que é figura do ressentimento.
