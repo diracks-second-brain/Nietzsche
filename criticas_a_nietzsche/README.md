@@ -19,3 +19,8 @@ Este, para Nietzsche, é o fundamento da moralidade ocidental fundada na doutrin
 Para Luc Ferry e Alain Renault, a crítica Nietzscheana à modernidade remonta à origem da dialética socrática -
 que tão bem se saiu contra o relativismo sofista de então e com a qual a "plebe" se põe acima -
 que fora transmitida ao cristianismo para, em seguida, ser tomada por Rousseau e pela Revolução Francesa e, finalmente, pelo socialismo à sua época
+
+Toda a filosofia ocidental, desde sócrates \- Pensava ele \- era a crônica de uma decadência. Os gregos pré-socráticos \- Principalmente Heráclito \-
+haviam, dizia ele [Nietzsche], alcançado o cume do pensamento, em sua compreensão intuitiva, artística, não conceitual, do mundo e do homem. Com
+Sócrates começa a queda: Sua filosofia conceitual, baseada no exame racional das proposições, introduzia uma perturbação na antiga harmonia, perturbação
+que tomou forma com Platão e sua definição do mundo objetivo como cópia de um mundo primordial, das idéias.
