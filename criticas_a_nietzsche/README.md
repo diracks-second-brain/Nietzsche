@@ -24,3 +24,10 @@ Toda a filosofia ocidental, desde sócrates \- Pensava ele \- era a crônica de 
 haviam, dizia ele [Nietzsche], alcançado o cume do pensamento, em sua compreensão intuitiva, artística, não conceitual, do mundo e do homem. Com
 Sócrates começa a queda: Sua filosofia conceitual, baseada no exame racional das proposições, introduzia uma perturbação na antiga harmonia, perturbação
 que tomou forma com Platão e sua definição do mundo objetivo como cópia de um mundo primordial, das idéias.
+
+A separação entre o ser e pensar entre essência e aparência, que então teve início \- separação fundamental para o desenvolvimento da atividade
+científica e para o conhecimento objetivo do mundo \- é, para Nietzsche, o principal traço dessa queda. Queda que, depois, acentuou-se com o cristianismo
+e a definição de todos os homens iguais perante Deus (um ressentimento de escravos invejosos do poder do senhor) e aprofundou-se, séculos mais tarde,
+com a revolução francesa de 1789, para ele a vitória da mediocridade e da moral de escravos, que acabou com a hierarquia antiga e vulgarizou a idéia
+dos direitos do homem, da igualdade e da democracia. Foi ela, principalmente, que deu as bases para a maioria dos males contemporâneos, e para o maior
+deles, o socialismo.
