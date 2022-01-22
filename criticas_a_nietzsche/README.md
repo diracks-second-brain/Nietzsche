@@ -39,3 +39,12 @@ deles, o socialismo.
 Só quem despreza tem o direito de amar. Só que reconhece a sí mesmo e aos demais como indivíduos a serem desprezados é capaz de desenvolver o sentimento
 da compaixão, por reconhecer a pecaminosidade de todos os homens em geral. [...] Ao descobrir aquilo que é, o "homem" compassivo se vê como execrável e
 assim, sente indulgência e misericórdia em relação a sí mesmo.
+
+Nietzsche entende as teorias da igualdade e da fraternidade como erguidas sobre o mesmo terreno da moral da compaixão e que esse terreno é esse
+desprezo de sí mesmo, que leva a uma "debilitação e anulação do indivíduo".
+
+A compaixão não é uma afecção pelo outro, mas meramente uma forma de socorro à dor que é própria do indivíduo que assiste à dor do outro. Se há
+algum tipo de ajuda, ela é menos para apoiar o outro em sua dor do que para se livrar da dor de ver o outro sofrer.
+
+Nietzsche pretende mostrar que por detrás desse sentimento como tão nobre e supremo, escondem-se inúmeras possibilidades de interpretação que não são
+mais que manifestações do egoísmo, algo que foi esquecido pelos arautos da compaixão.
