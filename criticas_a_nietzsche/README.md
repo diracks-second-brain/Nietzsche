@@ -31,3 +31,11 @@ e a definição de todos os homens iguais perante Deus (um ressentimento de escr
 com a revolução francesa de 1789, para ele a vitória da mediocridade e da moral de escravos, que acabou com a hierarquia antiga e vulgarizou a idéia
 dos direitos do homem, da igualdade e da democracia. Foi ela, principalmente, que deu as bases para a maioria dos males contemporâneos, e para o maior
 deles, o socialismo.
+
+### A moral da compaixão
+
+> O amor compaixão precisa ensinar primeiro a desprezar e só assim pode erguer a sua prescrição à compaixão
+
+Só quem despreza tem o direito de amar. Só que reconhece a sí mesmo e aos demais como indivíduos a serem desprezados é capaz de desenvolver o sentimento
+da compaixão, por reconhecer a pecaminosidade de todos os homens em geral. [...] Ao descobrir aquilo que é, o "homem" compassivo se vê como execrável e
+assim, sente indulgência e misericórdia em relação a sí mesmo.
